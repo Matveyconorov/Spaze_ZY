@@ -1,1 +1,1 @@
-https://SpaceZ.ru
+https://SpaceZY.ru/index.html
