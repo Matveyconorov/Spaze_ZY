@@ -1,1 +1,1 @@
-https://github.com/Matveyconorov/Spaze_Z.html
+https://github.com/all/index.html
